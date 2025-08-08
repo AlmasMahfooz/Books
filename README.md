@@ -4,3 +4,8 @@ Coraline         https://dn720004.ca.archive.org/0/items/english-collections-1/C
 
 Read https://www.scribd.com/doc/32732591/The-Evolution-of-the-Concept-of-the-Jinn
 from this post https://mythology.stackexchange.com/questions/12/how-were-djinn-traditionally-depicted-in-pre-islamic-arabic-myth/151#151
+
+
+VIDEO
+------
+Jabreel AS.    https://www.youtube.com/watch?v=92mq074cQgU

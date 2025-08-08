@@ -9,3 +9,5 @@ from this post https://mythology.stackexchange.com/questions/12/how-were-djinn-t
 VIDEO
 ------
 Jabreel AS.    https://www.youtube.com/watch?v=92mq074cQgU
+https://www.youtube.com/watch?v=oAiN2zfNSEY
+
